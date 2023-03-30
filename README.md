@@ -1,3 +1,3 @@
 <div align="center">
-  <h1>Minjung~haha</h1>
+  <h1>ᓚᘏᗢ</h1>
 </div>
